@@ -22,3 +22,6 @@ einem Trancezustand und lässt die Wohnung zunehmend verkommen. Ihr Lieblingsdri
 ## Kernaussage
 > Wenn man mal erstrangig gewesen ist bei einer Sache, ganz gleich bei welcher,
 > dann kriegt man es nicht fertig, was Zweitrangiges zu tun.
+
+<img src="https://images.gr-assets.com/questions/1266174271p7/75444.jpg"/>
+
